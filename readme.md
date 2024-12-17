@@ -1,1 +1,1 @@
-apa apaa apaaa miftah cantikkk
+miftah cantikkk
